@@ -12,6 +12,6 @@ iam an artist!i like to costumize stuff
 sign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
 mostly offtab, c+h⁠ pls ♡
 
-<img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
+<img src="https://i.imgur.com/qBiejRY.png&=80" width="600">
 
 ㅤ
