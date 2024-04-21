@@ -9,7 +9,9 @@ rentry can glitch, wait a few secs
 <img src="https://i.imgur.com/ELeWurl.png&" width="600">
 
 <p align="center"> im an artist!i like to costumize stuff>
-<p align="center"> sign my [guestbook](https://kureomi.123guestbook.com/) pslpsls>
+<p align="center" sign my gb plspsl > 
+
+ ㅤㅤㅤ✮ㅤ[mainrentry](https://rentry.co/cinnamonp)
 <p align="center"> mostly offtab, c+h⁠ pls ♡>
 
 
