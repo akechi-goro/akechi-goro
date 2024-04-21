@@ -8,9 +8,9 @@ rentry can glitch, wait a few secs
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="600">
 
-iam an artist!i like to costumize stuff
-sign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
-mostly offtab, c+h⁠ pls ♡
+<p align="center" im an artist!i like to costumize stuff>
+<p align="center"> sign my [guestbook](https://kureomi.123guestbook.com/) pslpsls>
+<p align="center" mostly offtab, c+h⁠ pls ♡>
 
 <img src="https://i.imgur.com/qBiejRY.png&=80" width="600">
 
