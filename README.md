@@ -1,16 +1,22 @@
-### Hi there 👋
+<img src="https://i.imgur.com/BHy6Vjd.png&=80" width="400">
+ㅤ
+ㅤㅤㅤㅤㅤhai!! call me reo , i love rentries
 
-<!--
-**akechi-goro/akechi-goro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ㅤㅤㅤㅤcurrently fixated on persona ♡
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
+
+ㅤㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+
+<img src="https://i.imgur.com/ELeWurl.png&" width="400">
+
+ㅤㅤㅤiam an artist!i like to costumize stuff
+
+ㅤㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly offtab, c+h⁠ pls ♡
+
+<img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
+
+ㅤ
