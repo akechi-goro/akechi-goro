@@ -11,7 +11,7 @@ rentry can glitch, wait a few secs
 <p align="center"> im an artist!i like to costumize stuff>
 <p align="center" sign my gb plspsl > 
 
-<table><tr><td>[test](https://rentry.co/anti-thief)</td></tr></table>
+<table><tr><td>✩★</td></tr></table>
 <p align="center"> mostly offtab, c+h⁠ pls ♡>
 
 
