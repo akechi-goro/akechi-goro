@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/BHy6Vjd.png&=80" width="400">
+<img src="https://i.imgur.com/BHy6Vjd.png&=80" width="600">
 ㅤ
 ㅤㅤㅤㅤㅤhai!! call me reo , i love rentries
 
