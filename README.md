@@ -16,8 +16,9 @@
 </h1>
 
 
-<p align="center"> i rlly love c+h <3>
+<p align="center"> i rlly love cuddles WAAA 
 <p align="center"> int if we are in the same fandom!!
+<p align="center"> I LOVE SKY AND SANRIO AND PERSONA
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   
