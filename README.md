@@ -1,7 +1,7 @@
 <p align="center"><img src="https://i.imgur.com/KSjmsqq.png&=80" width="600">
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
-<p align="center">currently fixated on persona ♡
+<p align="center">currently fixated on persona/sky/sanrio ♡
 <p align="center"> mostly playing or offtab/afk w2i ^^
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -18,7 +18,6 @@
 
 <p align="center"> i rlly love cuddles WAAA 
 <p align="center"> int if we are in the same fandom!!
-<p align="center"> I LOVE SKY AND SANRIO AND PERSONA
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   
