@@ -16,7 +16,8 @@
 </h1>
 
 
-<p align="center"> im an artist!i like to costumize stuff>
+<p align="center"> i rlly love c+h <3>
+<p align="center"> int if we are in the same fandom!!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   
