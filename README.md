@@ -1,8 +1,8 @@
 <img src="https://i.imgur.com/KSjmsqq.png&=80" width="600">
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
-currently fixated on persona ♡
-rentry can glitch, wait a few secs>
+<p align="center">currently fixated on persona ♡
+<p align="center">rentry can glitch, wait a few secs>
 
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
@@ -16,9 +16,6 @@ rentry can glitch, wait a few secs>
 
 <p align="center"> im an artist!i like to costumize stuff>
 <p align="center" sign my gb plspsl > 
-
-<table><tr><td>✩★</td></tr></table>
-<p align="center"> mostly offtab, c+h⁠ pls ♡>
 
 
 <img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
