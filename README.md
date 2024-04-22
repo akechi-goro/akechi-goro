@@ -2,7 +2,7 @@
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
 <p align="center">currently fixated on persona ♡
-
+<p align="center"> mostly offtab/afk pls w2i
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
