@@ -17,9 +17,12 @@
 
 
 <p align="center"> im an artist!i like to costumize stuff>
-<p align="center"> i loooovee
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  
+<p align="center" i loooovee >
 
+  
 <img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
 
 ㅤ
