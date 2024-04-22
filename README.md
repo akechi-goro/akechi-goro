@@ -2,8 +2,8 @@
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
 <p align="center">currently fixated on persona ♡
-<p align="center">rentry can glitch, wait a few secs>
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 <img src="https://i.imgur.com/MJ8GSi4.png&" width="600">
