@@ -5,7 +5,6 @@
 <p align="center"> mostly offtab/afk pls w2i
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
 <img src="https://i.imgur.com/MJ8GSi4.png&" width="600">
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
