@@ -4,7 +4,7 @@ Hai!! call me reo , i love rentries
 currently fixated on persona ♡
 rentry can glitch, wait a few secs
 
-[prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+[<p align="center"> prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="600">
 
