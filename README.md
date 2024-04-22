@@ -5,9 +5,9 @@ currently fixated on persona ♡
 rentry can glitch, wait a few secs
 
 
-<h1 align="center">[teste](https://rentry.co/ua)</h1>
+<h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
-[<p align="center"> prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+[prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="600">
 
