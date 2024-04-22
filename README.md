@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/BHy6Vjd.png&=80" width="600">
+<img src="https://i.imgur.com/KSjmsqq.png&=80" width="600">
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
 currently fixated on persona ♡
@@ -12,7 +12,7 @@ rentry can glitch, wait a few secs>
 [mainrentry](https://rentry.co/cinnamonp)
 </h1>
 
-<img src="https://i.imgur.com/ELeWurl.png&" width="600">
+<img src="https://i.imgur.com/MJ8GSi4.png&" width="600">
 
 <p align="center"> im an artist!i like to costumize stuff>
 <p align="center" sign my gb plspsl > 
@@ -21,6 +21,6 @@ rentry can glitch, wait a few secs>
 <p align="center"> mostly offtab, c+h⁠ pls ♡>
 
 
-<img src="https://i.imgur.com/qBiejRY.png&=80" width="600">
+<img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
 
 ㅤ
