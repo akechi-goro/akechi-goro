@@ -8,6 +8,7 @@ rentry can glitch, wait a few secs
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
 [prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+</h1>
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="600">
 
