@@ -1,8 +1,8 @@
 <img src="https://i.imgur.com/BHy6Vjd.png&=80" width="600">
 ㅤ
-Hai!! call me reo , i love rentries
+<p align="center"> Hai!! call me reo , i love rentries
 currently fixated on persona ♡
-rentry can glitch, wait a few secs
+rentry can glitch, wait a few secs>
 
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
